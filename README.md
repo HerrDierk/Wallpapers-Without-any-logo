@@ -1,4 +1,4 @@
-# Wallpapers-Without-any-logo
+# Wallpapers-NO-LOGO
 As the name says...
 
 --Artwork--
